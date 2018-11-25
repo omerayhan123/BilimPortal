@@ -1,2 +1,2 @@
-# progameromer
+# Bilim Portalı
 RESMİ İNTERNET SAYFASI
